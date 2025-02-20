@@ -1,2 +1,2 @@
 # LearnPY
-Pratise
+Pratise are men perfect
